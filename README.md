@@ -19,5 +19,5 @@
 #### 1. Sensasi SMA Darul Ulum 1 | Koordinator Photographer Majalah Sensasi | Surabaya `2021-2022`
 #### 2. NCC SMA Darul Ulum 1 | Wakil Koordinator Kementrian Photographer NCC Ke-8|  `2021`
 #### 3. NCC SMA Darul Ulum 1 | Anggota Kementrian Kreatif & Photographer NCC Ke-9| `2022-2023`
-#### 4. Ikkapdar Karesidenan Kediri Pondok Pesantren Darul Ulum | Koordinator Dekorasi | `2021`
+#### 4. Ikkapdar Karesidenan Kediri Pondok Pesantren Darul Ulum | Koordinator Dekorasi | `2022`
 `
